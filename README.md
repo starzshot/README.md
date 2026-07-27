@@ -1,5 +1,5 @@
 
- <span> Basic of basic info!!<span>
+ <span>Basic of basic info!!<span>
 
 <span>(For those who don’t want to dig through my yap of a StrawPage)<span>
 
