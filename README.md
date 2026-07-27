@@ -4,6 +4,10 @@
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
+[C+H / Crowning - ☑️]
+
+₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+
  19 Y/O
 
  🇬🇺 | 🇵🇭
@@ -32,4 +36,7 @@ Basic Boundaries
 * Block me immediately if you’re proship, I won’t debate or argue on it or its discourse.
   
 * I’m alright with NSFW jokes/references/remarks, but please refrain from making any towards me, thankyou :)
+
+* I prefer being sent a whisper if you want to INT or just in general!
+
 Okay that’s it, bye!!
