@@ -1,4 +1,4 @@
-<span>starzshot/README.md</span>
+<span></span>
  Basic of basic info!!
 
 (For those who don’t want to dig through my yap of a StrawPage)
