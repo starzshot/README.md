@@ -1,3 +1,5 @@
+<img width="2048" height="281" alt="image" src="https://github.com/user-attachments/assets/a2b34b5e-b389-43b5-bcf3-7bb9e1225f8b" />
+
 Basic of basic info!!
 
 (For those who don’t want to dig through my yap of a StrawPage)
