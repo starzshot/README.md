@@ -41,6 +41,8 @@ Basic Boundaries
 
 Okay that’s it, bye!!
 
+<img width="110" height="80" alt="image" src="https://github.com/user-attachments/assets/37b354c7-47a0-444a-91c1-30438eb62a71" />
+
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/62c51264-cbd3-4388-a5a2-311566168ed6" />
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/f0a34eb4-883f-416a-9de9-021d32c7ca23" />
@@ -60,12 +62,3 @@ Okay that’s it, bye!!
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/1bda2efd-1575-4dbf-8453-286a0fce50a0" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/becd57b3-81b5-4eab-b577-60cd7be61bb0" />
 
-
-
-
-
-
-
-
-
-<img width="110" height="80" alt="image" src="https://github.com/user-attachments/assets/37b354c7-47a0-444a-91c1-30438eb62a71" />
